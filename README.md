@@ -1,6 +1,3 @@
-
-02.01.2025
-
 Kid Cudi - Man on the Moon: The End of Day
 Kid Cudi - Man on the Moon II: The Legend of Mr. Rager
 Kids See Ghosts - Kids See Ghosts
